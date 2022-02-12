@@ -1,1 +1,1 @@
-# Here are some of my course completion certificates and skill certifications.
+Here are my course completion certificates and skill certifications. :nerd-face:
